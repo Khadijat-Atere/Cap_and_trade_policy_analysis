@@ -35,5 +35,6 @@ Using panel data (1990–2023) on power plant emission and Electric Power indust
 - Integration of empirical evidence with policy recommendations
 
 ##  Contact
-For collaborations or[Uploading environmental Brief Report Atere (2).pdf…]()
- questions, reach out via [LinkedIn](www.linkedin.com/in/atere-khadijat)
+For collaborations or questions, 
+Email: [aterekhadijat98@gmail.com](mailto:aterekhadijat98@gmail.com)  
+LinkedIn: [linkedin.com/in/atere-khadijat](https://www.linkedin.com/in/atere-khadijat/)
